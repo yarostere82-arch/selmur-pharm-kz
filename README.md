@@ -1,0 +1,1 @@
+# selmur-pharm-kz
